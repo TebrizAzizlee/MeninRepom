@@ -1,0 +1,1 @@
+her sey git de qeyd edilib
